@@ -5,3 +5,4 @@
 번역: 윤준  
 출판: 한빛미디어  
 출간: 2019.11.01.
+![image](https://user-images.githubusercontent.com/77236100/186643034-6ea31191-211c-4919-b29d-0d51c3da5b37.png)
